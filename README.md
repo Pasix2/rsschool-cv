@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Pasix2.github.io/rsschool-cv/cv
